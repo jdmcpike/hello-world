@@ -1,2 +1,2 @@
 # hello-world
-Just another repository
+I can get anything I want at Alice's restaurant.
